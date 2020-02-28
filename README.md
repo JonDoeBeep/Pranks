@@ -3,7 +3,7 @@ lol i almost killed my computer wait why s it blue
 oh no
 how about a poem
 # roses are red 
-# violets are blue
+# My screen is blue
 # pls help me
 # ive deleted sys#32 
 # hahahhahahhahahahhahhahahah
